@@ -1,1 +1,1 @@
-# GDSC-Tiktok-Case-Study
+# GDSC Tiktok Case Study
